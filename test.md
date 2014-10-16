@@ -1,5 +1,4 @@
-This is a test
-
+Pls werk
 
 Jerry: Did the medical journal mention anything about standing in a pool of somebody else's urine. Me too. Mickey: It’s 100% cotton, and some wool. George: My father was a quitter, my grandfather was a quitter, I was raised to give up. It's one of the few things I do well. George: Who buys an umbrella anyway? You can get them for free at the coffee shop in those metal cans? Jerry: You know what a good mechanic is worth? You can't compare that to sex. Jerry: If we pick, do we not bleed."
 
